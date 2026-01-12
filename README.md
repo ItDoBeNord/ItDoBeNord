@@ -1,1 +1,2 @@
 - 👋 Hi, I’m @ItDoBeNord
+- I'm just a chill lil guy :)
